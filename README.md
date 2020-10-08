@@ -1,0 +1,5 @@
+Spaghetti aglio e olio translates to “spaghetti with garlic and oil.” The traditional dish contains little more than these ingredients. It might be finished with a sprinkle of parsley or a pinch of red pepper flakes, but even these are optional. In its simplest form, this classic Italian pasta features spaghetti, olive oil, garlic, salt, and pepper.
+
+But if you’ve ever tried it, you know that spaghetti aglio e olio is far more than the sum of its parts. The garlic infuses the oil with rich, nutty flavor, and salty, starchy pasta cooking water transforms it into a deeply flavorful sauce. Add perfect al dente pasta to the mix, and it’s absolute heaven.
+
+Spaghetti aglio e olio has been my go-to order at Italian restaurants for years, but recently, it’s become one of my favorite dishes to make at home. It comes together in just 20 minutes, it uses a handful of pantry ingredients, and it’s simply delicious. If you have pasta, garlic, and olive oil in your kitchen, try it tonight! If you’re anything like me, you’ll make it again the next night, and again the next. 🙂 Yep, it’s that good.
